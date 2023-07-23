@@ -1,0 +1,1 @@
+Cкріншот виконання команд ----> https://monosnap.com/file/8zYlNMCqhQb3iXAK5ZJ7wKugHwT4ho
